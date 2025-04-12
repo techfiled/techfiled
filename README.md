@@ -33,7 +33,8 @@
 🎙️ **[Tech Talks & Webinars](https://www.youtube.com/@yourchannel)** - Sharing knowledge & insights 🎤  
 
 ## 📫 Let's Connect!
-📧 **Email:** [your-email@example.com](mailto:your-email@example.com)  
+📧 **Email:** kannurana025@gmail.com
+
 🔗 **LinkedIn:** [Your Profile](https://linkedin.com/in/yourprofile)  
 🐦 **Twitter:** [Your Handle](https://twitter.com/yourhandle)  
 🎥 **YouTube:** [My Channel](https://youtube.com/yourchannel)  
